@@ -1,2 +1,1 @@
-# merge
-merge et conflits 
+gtrtr(ètètètèt§r(
